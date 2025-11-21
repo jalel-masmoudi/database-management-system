@@ -461,7 +461,7 @@ MIT License - Learn and practice freely!
 
 **Jalel Masmoudi**  
 Computer Science Student | Database Enthusiast  
-📧 jalel.masmoudi@example.com
+📧 m.j.masmoudi1@gmail.com
 
 ---
 
